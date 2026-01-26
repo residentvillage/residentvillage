@@ -2,5 +2,7 @@
 <p align="center"> ${\color{blue}🐉 𐔌 ‎  Gordon ノ Leon ‎ ‎𖦹‎ ‎   Taken‎ °•*⁀➷‎ D‎🩵 ‎ ‎  𖦹 ‎‎  DID SYS}$ </p>
 <p align="center"> ${\color{blue}Hyperfixations: - Kamen Rider‎ - ‎ Sentai‎ - Magical Girls‎ -‎ OW2‎ -‎ DBD‎ -‎ OLT‎ -‎ DMC‎ -‎ ECT.ᐟ }$ </p>
 <p align="center"> ${\color{blue}BYI: Always‎ offtab‎ w2i,‎ I‎ WILL‎ usually‎ reply‎ LATE. }$ </p>
-<p align="center"> ${\color{blue}Links:}$
-<p align="center"> ꒰ᐢ. .ᐢ꒱ ♡ 𓂃𓂁𓂃
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ [Graphics Credits](https://www.tumblr.com/hantokarakida/766230301345202176/banjou-ryuuga-edits-requested-by-hellverses?source=share)‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎[Strawpage](https://kamenriderbuild.straw.page)‎‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ [Main Steam](https://steamcommunity.com/id/dantespardaswife/)‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ [DBD ONLY STEAM](https://steamcommunity.com/id/vergilscumrag)
+
+<p align="center"> ${\color{red}🐇 ♡ 🐉‎  D ♡ G‎ ◞‎ 彡‎ The‎ Banjo‎ to‎ my‎ Sento‎ ❤︎}$ </p>‎
